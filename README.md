@@ -9,5 +9,5 @@
 | Nome | GitHub |
 |------|--------|
 | [Gabriel Yamazoe] | [@amarelons] |
-| [Nome 2] | [@usuario2] |
-| [Nome 3] | [@usuario3] |
+| [Maria Teodora Santana de Martin] | [nao sei] |
+| [Nao lembro quem era] | [nao sei] |
